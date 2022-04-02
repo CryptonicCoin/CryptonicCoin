@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CryptonicCoin
+- 👀 I’m interested in Crypto currency
+- 🌱 I’m currently learning how to start making my digital money making bus
+- 📫 How to reach me cryptoniccoin@gmail.com
